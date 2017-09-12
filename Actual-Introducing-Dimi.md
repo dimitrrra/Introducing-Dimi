@@ -8,4 +8,5 @@
 ### Languages you speak: English, French, Greek
 ### Interests: Brazilian Jiu-Jitsu and soccer
 ### Part time job: Babysitting 
-### 
+### What do I want to get out of BTT10: I'd like to be more hands on and less computer work. I've heard from grade 10s that their business class was very hands on and they made things and made poster ect. I am hoping to do more of that and less coding. 
+
