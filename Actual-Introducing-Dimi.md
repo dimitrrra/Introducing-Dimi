@@ -1,6 +1,7 @@
 ## Introducing Dimi Kyriakoylias
 
 ### Full Name: Dimitra Andonia Kyriakoylias
+### Nick name: Dimi
 ### Hometown: Bridlewood, Kanata
 ### Middle School Attended: _Glen Cairn Public School_ then before that I went to _Bridlewood_ and then before that I went to _Roch Carrier_
 ### Parents: Robyn and Rac Kyriakoylias
